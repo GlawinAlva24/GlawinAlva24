@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-## 🅖 - ① | Not just a name, it’s a version.  
+## 🇬 - ① | Not just a name, it’s a version.  
 
 📍 Birmingham, England  
 📧 glawin24@gmail.com  
