@@ -1,16 +1,19 @@
 ## Hi there 👋
 
-<!--
-**GlawinAlva24/GlawinAlva24** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## Ⓖ - ❶ | Not just a name, it’s a version.  
 
-Here are some ideas to get you started:
+📍 Birmingham, England  
+📧 glawin24@gmail.com  
+🌐 
+🔗 [LinkedIn](https://linkedin.com/in/glawin-alva-gg)  
+🐙 [GitHub](https://github.com/GlawinAlva24)
+𝕏 [@GlawinAlva](https://x.com/GlawinAlva)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+---
+
+🧠 MSc in AI & Business Strategy  
+⚙️ Data Engineer | 🤖 AI Architect | ☁️ Cloud Dreamer  
+Turning messy data into masterpieces — one pipeline at a time.  
+Always building. Always learning. Sometimes caffeinated.
+
+
