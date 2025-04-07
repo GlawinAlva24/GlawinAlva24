@@ -7,7 +7,7 @@
 🌐  
 🔗 [LinkedIn](https://linkedin.com/in/glawin-alva-gg)  
 🐙 [GitHub](https://github.com/GlawinAlva24)  
-𝕏 [@GlawinAlva](https://x.com/GlawinAlva)
+ 𝕏 [@GlawinAlva](https://x.com/GlawinAlva)
 
 ---
 
