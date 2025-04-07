@@ -12,7 +12,7 @@
 ---
 
 🧠 MSc in AI & Business Strategy  
-⚙️ Data Engineer | 🤖 AI Architect | ☁️ Cloud Dreamer  
+⚙️ Data Engineer | 🤖 AI Architect | ☁️ Cloud Dreamer  | ֎ LLM Explorer  
 Turning messy data into masterpieces — one pipeline at a time.  
 Always building. Always learning. Sometimes caffeinated.
 
