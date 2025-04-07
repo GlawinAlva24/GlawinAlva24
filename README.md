@@ -8,8 +8,7 @@
 🔗 [LinkedIn](https://linkedin.com/in/glawin-alva-gg)  
 🐙 [GitHub](https://github.com/GlawinAlva24)  
  𝕏 [@GlawinAlva](https://x.com/GlawinAlva)
- ![image](https://github.com/user-attachments/assets/af36ea7a-0c22-4fd1-b85a-a2a4d63508e4)
-
+📸 [Instagram](https://instagram.com/just_glawin)
 
 ---
 
