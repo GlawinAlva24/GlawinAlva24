@@ -4,7 +4,7 @@
 
 📍 Birmingham, England  
 📧 glawin24@gmail.com  
-🌐  
+🌐  https://glawinalva.com/
 🔗 [LinkedIn](https://linkedin.com/in/glawin-alva-gg)  
 🐙 [GitHub](https://github.com/GlawinAlva24)  
  𝕏 [@GlawinAlva](https://x.com/GlawinAlva)
